@@ -1,3 +1,3 @@
 # Personnal Resume
 
-Here's an "anonymous" version of my Curriculum Vitae.
+Here's an "anonymous" french version of my Curriculum Vitae.
